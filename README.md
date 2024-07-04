@@ -1,1 +1,0 @@
-Unfinished personal homepage.
